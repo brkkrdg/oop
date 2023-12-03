@@ -1,1 +1,1 @@
-KAR-SAV 2022-2023 bahar dönemi anlatılan ders içerikleridir.
+KAR-SAV 2022-2023 güz dönemi anlatılan ders içerikleridir.
